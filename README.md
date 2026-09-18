@@ -1,1 +1,1 @@
-# Verity-
+# Verity
